@@ -2,7 +2,7 @@
 
 ### I made my resume ###
 
-#### You can see my resume screenshots here ####
+#### You can see my resume's screenshots here ####
 
 ##### Image 1 #####
 
