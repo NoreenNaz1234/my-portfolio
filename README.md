@@ -1,4 +1,4 @@
-## Portfoli ##
+## Portfolio ##
 
 ### I made my resume ###
 
